@@ -4,7 +4,7 @@
 - 💞️ I’m looking to grow my network as an IELTS trainer & Language Coach
 - 📫 I can be reached at will2learn110@gmail.com 
 - 😄 Pronouns: She/Her
-- ⚡ I'm a book-reviewer, Forword-Writer, Translator & a Poet-critic in English & Urdu
+- ⚡ I'm a book-reviewer, Foreword-Writer, Translator & a Poet-critic in English & Urdu
 
 <!---
 sbn-creator/sbn-creator is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
